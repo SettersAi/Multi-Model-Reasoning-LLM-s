@@ -32,7 +32,7 @@ Here’s how it works:
 
 ## Contact
 
-For questions, feedback, or further details about this multi-model approach, please reach out to us at [your-email@example.com].
+For questions, feedback, or further details about this multi-model approach, please reach out to us at setters748@gmail.com.
 
 ---
 
